@@ -25,6 +25,7 @@ There is NO MINIMUM AMOUNT TO DRAIN because the gas fee will be automatically re
 
 A WALLET GIVES A COOL RESPONSE TO VICTIMS, IF ONE WAS FOUND.
 Working 100% 
+cHECK HERE FOR PROOF : https://www.youtube.com/watch?v=S-4vW06pSQc
 Contact me through the links below if you are interested.
 Telegram: @Cronos1402
 Channel: https://t.me/cryptotakersdotcom
